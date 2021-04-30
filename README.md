@@ -1,0 +1,1 @@
+# sts-428-technology-and-change-in-rural-america-fall-2004_d9928524af3a476c9de16c8d7873ee0c
